@@ -8,7 +8,7 @@
 <h2>📺 selected publictaions</h2>
 
 - [Local Community Adaptation to Flood Disaster In Soppeng District](https://shorturl.at/ckrQX)
-- [Patorani local knowledge system in fisheries resources conservation education in Galesong District South Sulawesi](https://shorturl.at/fvFM3)
+- [Patorani local knowledge system in fisheries resources conservation education in Galesong District South Sulawesi](https://rb.gy/g0iyra)
 - [Evaluation of Abattoir Effluent on Ground Water Quality](https://rb.gy/zmmz70)
 - [Geo-Spatial Trend Mapping of Some Annual Climate Variable for South West Nigeria](https://rb.gy/1nypkz)
 - [Assessment of Suitability of Oshin River Water for Irrigation: Case Study of Oke-Oyi Irrigation Scheme, Nigeria](https://rb.gy/098zkf)
